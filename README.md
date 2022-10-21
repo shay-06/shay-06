@@ -1,0 +1,2 @@
+- heyo, i'm shay.
+- this is my school account
